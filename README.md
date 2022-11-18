@@ -1,0 +1,2 @@
+# PRIVT
+Lebih baik 👍
