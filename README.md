@@ -1,2 +1,2 @@
 # PRIVT
-Lebih baik 👍
+Tools termahal satu muka bumi 👍
